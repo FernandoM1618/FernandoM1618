@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FernandoM1618
-- 👀 I’m interested in criptocurrencies and dofferent projects about cryptos   
-- 🌱 I’m currently learning philosophy on the University 
+- 👀 I’m interested in criptocurrencies and different projects about cryptos (nft games, web3, airdrops, trading with cryptos, etc)    
+- 🌱 I’m currently learning philosophy on the University (Argentina)
 - 💞️ I’m looking to collaborate on japanese translation (japanese-spanish), and remote work.
 - 📫 How to reach me 
 - 😄 Pronouns:
